@@ -16,8 +16,16 @@
 - スープカレーSHANTI [website](http://www.shanticurry.com/)
   - 20ボーガ 🔥🔥🔥
     - これくらいまでは美味しく食べれる。それ以上は苦行。
+  - 10ボーガ 🔥🔥
+    - ちょっと物足りないけど、お腹休めたいときには良い
+- 陳家私菜　[website](https://tabelog.com/tokyo/A1303/A130301/13128819/)
+  - 麻婆豆腐 ⚡⚡⚡
+    - しびれ系の麻婆豆腐、麻婆豆腐だと一番うまい
+- うさぎ/神泉 [website](https://tabelog.com/tokyo/A1303/A130301/13005386/)
+  - 汁なし担々麺 ⚡⚡⚡
+    - しびれ系の汁無し坦々麺、後味が最高
 
 ### 横浜
-- スープカレーRAMAI 関内店[website](http://www.ramai.co.jp/shop_yokohama.html)
+- スープカレーRAMAI/関内 [website](http://www.ramai.co.jp/shop_yokohama.html)
   - デヴィフジン　🔥🔥🔥🔥
     - オイル多めにすると少し増しになる。一輪や赤い壺よりはまし。
