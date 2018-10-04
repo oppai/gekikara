@@ -15,7 +15,7 @@
     - 辛フェス2018で出店していたのを食べた。
 - スープカレーSHANTI [website](http://www.shanticurry.com/)
   - 20ボーガ 🔥🔥🔥
-  　　- くらいまでは美味しく食べれる。それ以上は苦行。
+    - これくらいまでは美味しく食べれる。それ以上は苦行。
 
 ### 横浜
 - スープカレーRAMAI 関内店[website](http://www.ramai.co.jp/shop_yokohama.html)
