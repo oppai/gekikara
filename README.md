@@ -37,3 +37,7 @@
 - スープカレーRAMAI/関内 [website](http://www.ramai.co.jp/shop_yokohama.html)
   - デヴィフジン　🔥🔥🔥🔥
     - オイル多めにすると少し増しになる。一輪や赤い壺よりはまし。
+
+### Amazon
+ - ブルダック炒め麺 [website](https://amzn.to/2tgQYDT) 🔥🔥🔥
+   - 辛さ具合はちょうど良いけど、なにか物足りない。もうちょっと甘辛ソースだと食べやすいなぁという印象、デスソースに近い辛さ。
